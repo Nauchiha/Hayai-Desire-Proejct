@@ -1,0 +1,1 @@
+# Hayai-Desire-Proejct Created a company using Fintech applications, gather and assemble financial information for a formal business plan used financial Excel spreadsheets workbook, conducted a multi-level business environment analysis using the PESTEL model, Porter’s 5 forces model, market profile analysis, SWOT analysis and core competency & founder fit analysis 
